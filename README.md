@@ -1,2 +1,7 @@
 # Bard1126
-Self-intro
+### Self-intro
+#### Hobbies
+* Train lover  
+* Flight simulator player
+#### Skills
+* Nothing
